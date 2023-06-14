@@ -1,1 +1,1 @@
-https://entys1asm.github.io/college_practice-3/
+https://entus1asm.github.io/eyelash-extension/
